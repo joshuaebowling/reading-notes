@@ -56,4 +56,37 @@ Studies in Dream Symbolism
 #### religion
 #### divine/celestial beings
 
+# Part V: Dream of Warning or Premonition
+### more than one reason for the same/similar dreams
+### human's natural fearfulness can cause premonition/warning dreams
+### premonitional dreams center upon disaster
+### dreams of disaster are almost never fulfilled
+### sometimes morbid expressions can cling to us
+### man tends to grow & perpetuate fear
+### to feel fear is to fulfill it
+### many important events go unpredicted
+### feeling entitled to trouble sets one looking for fearful things
+### dream disasters *symbolize* other disasters
+### an example of symbolically projecting into reality
+### an example of symbolically projecting into reality
+### an example of symbolically projecting into reality -- errors of literalism in dreams
+### dreams of disaster indicate emotional hangups with the subjects
+### prodromic dream
+### Aesculapius and diagnosis by dream
+### nature tends to warn things
+### how dream diagnosis may work
+### mind your troubles
+### prophecy based on personal knowledge
+### the relationsip between the persona and the shadow can source prophesy
+### an example of a dis-integrated life
+### the gradual suicide
+### dreams as therapy
+### dreams as therapy
+### dreams as foreknowledge
+### enlightenment is relative
+### the "dated" dream
+### the "dated" drea isn't purely psychological
+### when a dream lacks a psychological explanation then consider more literally
+
+
 
