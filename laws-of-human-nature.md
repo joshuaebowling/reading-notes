@@ -7,6 +7,8 @@
 ##### 4 components of empathy
 1. The empathetic attitude
   a. a state of mind
+    1. point 1
+    2. point 2
   b. transform daily conversations
   c. indluge other people
   d. quality of self-love

@@ -85,8 +85,74 @@ Studies in Dream Symbolism
 ### dreams as foreknowledge
 ### enlightenment is relative
 ### the "dated" dream
-### the "dated" drea isn't purely psychological
+### the "dated" dream isn't purely psychological
 ### when a dream lacks a psychological explanation then consider more literally
+### the foreknowledge dream
+### the great clock in the sky
+### man's sensitivity to the great clock in the sky
+### intuition exists
+### sensitivty to "patterns"
+### earth - the invisible structure
+### the antecedent to existence
+### when the levee of anti-existence breaks
+### karmic debt
+### individuals relating to common destiny
+### a persons place in the common destiny can be determined
+### psychic awareness
+### telepathy/esp in dreaming
+### sympathetic energies
+### clairvoyance in dreams
+### Amerindians that can locate herds a great distance
+### reviewing reasons for premonitiona dreams
 
-
+# Part VI: The Dream as Vision or Mystical Experience
+1. the dream-vision experience in not a new phenomenon
+2. Visions are unquestionably types of physicical experience derived principally from within ourselves
+3. Theophany of St. Paul
+4. Understanding the Significance of ^^
+5. The Story of the Theophany of St. Paul
+6. Explaining the pressure of ^^
+7. Psycho-analysis of ^^
+8. Of examples like ^^
+9. Visions can come on awake or asleep
+10. It available to all, but few accept
+11. Plotinus' visions
+12. ^^
+13. Revelation of St John was product of vision
+14. Visions relate to our own peculiar problems
+15. Visions relate to daily life
+16. Realizing personal inadequacy is disorienting
+17. Personal vision needs to be recorded to have value
+18. Visions presented as a series of symbols
+19. What makes an archetypal dream different
+20. These types of dreams are witnessed sometimes
+21. Visions have more conscious awareness
+22. Often preceded by a mysterious situation
+23. Visions in a waking state
+24. The bridge between materiality and the mind
+25. Hypnosis as proof of ^^
+26. Hypnosis and the individual person
+27. Vibratory mental image-patterns can project themselves
+28. Light is the most abstract
+29. The distinction between natural and supernatural reality
+30. Natural forms in unnatural combinations
+31. ^^ indicates an archetypal dream
+32. The use of subconscious in archetypal dreams
+33. Ancient people's use of symbolism
+34. Invisible beings, principles, energies, and powers
+35. The process of primitive man
+36. Auditory visions
+37. Projected images
+38. Confirmation bias in analyzing visions
+39. Man has the power to project
+40. Man's inherent nature and visions
+41. The Sensitive is the medium
+42. Example of mass vision
+43. Archetypal nature develops overtime
+44. Nature conveying knowledge
+45. Visions have a limited pallete
+46. Symbols are often cultural
+47. Visions often carry a sense of authenticity
+48. Visions with consequences
+49. Its hard to say what reaction will come from visions and mystical experiences 
 
