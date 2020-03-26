@@ -18,3 +18,7 @@
   c. empathy depends on neurons
   d. mirroring draws out empathy
   e. maintain distance
+3. analytic empathy
+  a. under standing people need information
+  b. using  coversation to gather information
+  c. study  familie relations
