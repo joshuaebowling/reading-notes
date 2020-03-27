@@ -22,3 +22,8 @@
   a. under standing people need information
   b. using  coversation to gather information
   c. study  familie relations
+  d. open-ended questions,establish trust
+ 4. the empathetic skill
+    the empathetic process
+	tips to improve
+	improvement ecites u to go deeper
