@@ -1,4 +1,4 @@
-#Law of Human Nature
+# Law of Human Nature
 ## The skim
 ### Chapter 2 -- Transform Self Love into Empathy
 #### The Law of Narcissism
@@ -27,3 +27,10 @@
     the empathetic process
 	tips to improve
 	improvement ecites u to go deeper
+##### four examples of narcissistic types
+1. the complete control narcissit
+  a. joseph stalin
+  b. joseph stalin epitommized the revolution with his charm
+  c. stalin & likeble kirov
+  d. kirov predicament with stalin
+  
