@@ -33,4 +33,7 @@
   b. joseph stalin epitommized the revolution with his charm
   c. stalin & likeble kirov
   d. kirov predicament with stalin
+  e. decemder 1934  kirov  was assassinated kirov
+  f. stalin will be  affeectionet, but  he will send u to your death
+  g.stalin the infallible force of revolution
   
