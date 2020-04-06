@@ -33,7 +33,15 @@
   b. joseph stalin epitommized the revolution with his charm
   c. stalin & likeble kirov
   d. kirov predicament with stalin
-  e. decemder 1934  kirov  was assassinated kirov
+  e. decemder 1934  kirov  was assassinated 
   f. stalin will be  affeectionet, but  he will send u to your death
   g.stalin the infallible force of revolution
+  h. hitler stalin war
+  r. stalin & his lieutenants
+  j. worst fate of all to be invited to dinner
+  k. stalin played some music and ordered the men to dance
+  ###### interpretation
+  1. stalin  gain influence by charm
+  a. complete control narcissit have more ambition & energy
+  b.ther attention is real
   
