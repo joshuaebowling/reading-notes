@@ -43,5 +43,9 @@
   ###### interpretation
   1. stalin  gain influence by charm
   a. complete control narcissit have more ambition & energy
-  b.ther attention is real
+  b. ther attention is real
+  c. all of this is  about controll
+  d. they tern into micromanagers
+  e.  complet controll narcissist  through ther ambition ther become  ceo's & political figures
+  f. look at ther past
   
