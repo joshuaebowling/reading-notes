@@ -48,4 +48,10 @@
   d. they tern into micromanagers
   e.  complet controll narcissist  through ther ambition ther become  ceo's & political figures
   f. look at ther past
+2. the theatrical narcissit
+  a. in 1627 the ursuline nuns in loudun  welcomed a new sister jeane
+  b. the ursuline sisters  heard some  strange  stories
+  c. exorcisms up in pupblic
+  d.  grandier was sentinsed to death
+  e. jeane taken a liking to surin
   
