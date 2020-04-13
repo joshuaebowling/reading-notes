@@ -41,17 +41,26 @@
   j. worst fate of all to be invited to dinner
   k. stalin played some music and ordered the men to dance
   ###### interpretation
-  1. stalin  gain influence by charm
-  a. complete control narcissit have more ambition & energy
-  b. ther attention is real
-  c. all of this is  about controll
-  d. they tern into micromanagers
-  e.  complet controll narcissist  through ther ambition ther become  ceo's & political figures
-  f. look at ther past
+  a. stalin  gain influence by charm
+  b. complete control narcissit have more ambition & energy
+  c. ther attention is real
+  d. all of this is  about controll
+  e. they tern into micromanagers
+  f.  complet controll narcissist  through ther ambition ther become  ceo's & political figures
+  g. look at ther past
 2. the theatrical narcissit
   a. in 1627 the ursuline nuns in loudun  welcomed a new sister jeane
   b. the ursuline sisters  heard some  strange  stories
   c. exorcisms up in pupblic
   d.  grandier was sentinsed to death
   e. jeane taken a liking to surin
+  f. demons fled jeane's body
+  g. in paris crowds came to see jean
+  h. 1665 jeanne was mummified in a silver box
+  ##### interpretation
+  a. jeane had insatiable appetite for attention
+  b. jeane didnt let go of the demons even after grandier's execution
+  c. even surin found the need for a tour
+  d. deep narcissism goes unnoticed by others untill the behavior is to extreme to ignore
+  
   
