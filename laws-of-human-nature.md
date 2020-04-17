@@ -62,5 +62,18 @@
   b. jeane didnt let go of the demons even after grandier's execution
   c. even surin found the need for a tour
   d. deep narcissism goes unnoticed by others untill the behavior is to extreme to ignore
-  
+  ##### the narcissistic couple
+  a. 1862 leo and sonya decided ther will be no secrets between them
+  b. for sonya the marriage eventually settled into a relatively comfortable rhythm
+  c. sonya her family reacted angrily
+  d. leo wanted a  simple spiritual life from sonya was the problem
+  e. the pattern became sharper and more violent
+  f. leo ran away from sonya with his docter friend
+  g. leo & sonya got back together
+  ##### interpretation
+  a. leo displayed all the signs of  the deep narcissist
+  b.  lack of empathy makes ppl defensive
+  c. leo's spiritual crisis epitomized the narcissistic dynamic
+  d. empathy has the opposite effect of mutual narcissism
+  e. the key to employing empathy is to understand ther values
   
