@@ -76,4 +76,14 @@
   c. leo's spiritual crisis epitomized the narcissistic dynamic
   d. empathy has the opposite effect of mutual narcissism
   e. the key to employing empathy is to understand ther values
+  ##### the healthy narcissist-the mood reader
+  a. ernest henry ordered the abandonment of the ship
+  b. ernest henry faced many obstacles like: harsh weather's & dwindling food supplies
+  c. ernest had to motivate his team 
+  d. trapped for winter
+  e. henry had to attune to his team's mood
+  f. weak link's in the group 
+  g. he doubled his attentiveness
+  h. shrinking ice, life boats
+  i. choosing men for the voyage
   
