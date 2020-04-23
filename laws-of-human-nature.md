@@ -86,4 +86,15 @@
   g. he doubled his attentiveness
   h. shrinking ice, life boats
   i. choosing men for the voyage
+  j. mcneish's  spirite is sinking , he wont follow orders
+  k.  a few miles from ther destination, a  sudden storm pushed them back
+  m. they self rescued
+  #### interpretation
+  a. he knew the diference between  life or  death : is ther attitude
+  b. how shackleton went about this task should serve as a moddle for all of us.
+  c.  he attended to his group to each  indevidual equally
+  d. he had to be gentle
+  Understand
+  a. neccessity develops  empathetic powers
+  b. empathy is an un cultivated tool
   
