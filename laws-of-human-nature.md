@@ -2,19 +2,25 @@
 ## The skim
 ### Chapter 2 -- Transform Self Love into Empathy
 #### The Law of Narcissism
+
 #### The Narcissistic Spectrum
 ##### Fill in previous sections
 ##### 4 components of empathy
 1. The empathetic attitude
   a. a state of mind
-    1. point 1
-    2. point 2
-  b. transform daily conversations
+    * empathy is a  diferent way of relating to others  what u should and  should do is: dont assume & dont make quike judgments what u should do is recodnize that u r ignorent and u have biases. each person is a undiscovered planet/country & empathy is a creative booster.
+	
+  b. transform daily conversations 
+   dorring your  dailly conversation u have  to: dont talk,listen,reflect,feedback
   c. indluge other people
+    give other ppl the  same indlugce that u give  your self & give the the benefit of the doubt
   d. quality of self-love
+     dont be distracted with your self while emapathizing with pplS
 2. visceral empathy
   a. emotional attunement
+      pay attention to ppls gesters and tones of voice bc they can affect your own emeotions and they can help you empathize
   b. figure out people's intentions
+      if someone is giving u unsual amount attention u should figure out ther intention
   c. empathy depends on neurons
   d. mirroring draws out empathy
   e. maintain distance
