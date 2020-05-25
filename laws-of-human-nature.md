@@ -22,8 +22,22 @@
   b. figure out people's intentions
       if someone is giving u unsual amount attention u should figure out ther intention
   c. empathy depends on neurons
+      u can  empathize with  another by: mimicry,similer physical invierment,similer memeries
+	  
   d. mirroring draws out empathy
+    u should mimic,smile back,or nod at the person talking but even better  u can  enter u can enter the mind of the other person the motivation for this is it creates a feeling of  rapport and people\==============  rarely get that feeling bc other  ppl r narsisiezing
+	
   e. maintain distance
+     u must maintain a distance. u canot be enmeshed in the  emotions of the other that will make it hard for u pick up the emotions of the other whitch  can  lead u to loss of  controll. smilling and  nodding to mutch wll creat a creppy effect
+	 
+  ###### Summary
+      Empathy is a diferent way of relating to others what u should and shouldnt do is: dont assume & dont make quike judgments what u should do is recodnize that u r ignorent and u have biases. each person is a undiscovered planet/country & empathy is a creative booster. For example, during your  daily conversations u have to do the following: talk less, listen more, reflect, give feedback. 
+	  
+	  give other ppl the  same indlugce that u give  your self & give the the benefit of the doubt
+	  dont be distracted with your self while emapathizing with pplS
+	  
+	  
+	  
 3. analytic empathy
   a. under standing people need information
   b. using  coversation to gather information
