@@ -25,7 +25,7 @@
       u can  empathize with  another by: mimicry,similer physical invierment,similer memeries
 	  
   d. mirroring draws out empathy
-    u should mimic,smile back,or nod at the person talking but even better  u can  enter u can enter the mind of the other person the motivation for this is it creates a feeling of  rapport and people\==============  rarely get that feeling bc other  ppl r narsisiezing
+    u should mimic,smile back,or nod at the person talking but even better u can enter the mind of the other person the motivation for this is it creates a feeling of  rapport and people rarely get that feeling bc other  ppl r narsisiezing
 	
   e. maintain distance
      u must maintain a distance. u canot be enmeshed in the  emotions of the other that will make it hard for u pick up the emotions of the other whitch  can  lead u to loss of  controll. smilling and  nodding to mutch wll creat a creppy effect
@@ -40,6 +40,7 @@
 	  
 3. analytic empathy
   a. under standing people need information
+     visceral empathy is  strong but analytic empathy is  still needed. analytic empathy cen help u  empathize with ppl u dont like or ppl u cant relate to.
   b. using  coversation to gather information
   c. study  familie relations
   d. open-ended questions,establish trust
